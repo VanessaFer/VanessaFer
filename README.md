@@ -36,4 +36,4 @@ dati complessi in strumenti chiari e utili.
 Feel free to reach out for collaborations or freelance projects!
 Non esitare a contattarmi per collaborazioni o progetti freelance!
 
-📧 vanessa.ferrando@gmail.com
+📧 vanessa.ferrando.data@outlook.it
